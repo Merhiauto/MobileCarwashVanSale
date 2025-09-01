@@ -4,3 +4,4 @@
 ![PHOTO-2025-08-31-15-49-58](https://github.com/user-attachments/assets/4bdfb533-dd0b-4770-a483-3f8f10874595)
 ![PHOTO-2025-08-31-15-49-58 2](https://github.com/user-attachments/assets/b43dfe09-31ca-48d8-89b7-7a1470acbcfd)
 ![PHOTO-2025-08-31-15-49-59 2](https://github.com/user-attachments/assets/8b964c52-3ef9-44d8-9e35-2213a47cc571)
+https://claude.ai/chat/172578ef-8849-472c-8740-0e2bce79e980
